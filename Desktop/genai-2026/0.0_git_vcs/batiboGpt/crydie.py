@@ -1,0 +1,1 @@
+after burials, food is being shared . It's mostly banana and beans
